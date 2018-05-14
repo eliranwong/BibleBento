@@ -1,5 +1,5 @@
 Files on Commentary are uploaded here gradually.<br>
-Remarks: Only materials without copyrights issues will be uploaded.
+Remarks: Only materials without copyright issues will be uploaded.
 
 List of Abbreviations:
 
