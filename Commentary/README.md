@@ -1,5 +1,5 @@
-Files on Commentary are uploaded here gradually.
-Remarks: Only files in public domain will be uploaded.
+Files on Commentary are uploaded here gradually.<br>
+Remarks: Only public domain materials will be uploaded.
 
 List of Abbreviations:
 
